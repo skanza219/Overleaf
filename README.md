@@ -1,4 +1,6 @@
 this presentation is about positive thinking
 and positive behavior. Difference between 
-negative mind or positive mind . Daily habits 
-for a positive mindset 
+negative mind or positive mind . Daily habits
+for a positive mindset. read inspiring books...
+benefits of positive thinking...
+
